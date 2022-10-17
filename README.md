@@ -2,7 +2,7 @@
 - 👀 I’m interested in making top 8 at evo
 - 🌱 I’m currently pouring one out for the homies.
 - 💞️ I’m looking for someone to spot me benching 315 lbs.
-- 📫 How to reach me call your local Home Deopt, aidan.polese@gmail.com
+- 📫 How to reach me: call your local Home Deopt, aidan.polese@gmail.com
 
 My Beautiful Dark Twisted Fantasy is the best rap album ever released.
 Kanye losing his mind these days tho...
