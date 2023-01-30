@@ -4,8 +4,7 @@
 - 💞️ I’m looking for someone to spot me benching 315 lbs.
 - 📫 How to reach me: call your local Home Deopt, aidan.polese@gmail.com
 
-My Beautiful Dark Twisted Fantasy is the best rap album ever released.
-Kanye losing his mind these days tho...
+They buffed May and now I'm a god in celestial
 
 <!---
 AidanPolese/AidanPolese is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
