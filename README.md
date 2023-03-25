@@ -2,7 +2,7 @@
 - 👀 I’m interested in making top 8 at evo
 - 🌱 I’m currently pouring one out for the homies.
 - 💞️ I’m looking for someone to spot me benching 315 lbs.
-- 📫 How to reach me: call your local Home Depot, aidan@tangohq.com
+- 📫 How to reach me: call your local Home Depot, aidan.polese@gmail.com
 
 They buffed May and now I'm a god in celestial
 
